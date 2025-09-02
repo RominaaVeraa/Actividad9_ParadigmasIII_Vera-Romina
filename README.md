@@ -1,1 +1,0 @@
-# Actividad9_ParadigmasIII_Vera-Romina
